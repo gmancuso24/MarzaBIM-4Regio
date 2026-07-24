@@ -8,7 +8,7 @@
 
 Insula 1 of Regio IV, known as the "Isolato Mansuelli" after its excavator, comprises six dwellings (Houses 1–6) arranged within one of the residential blocks of ancient Kainua. The houses follow the canonical Etruscan urban layout of the site: rectangular plans oriented on the street grid, with rooms arranged around a central courtyard space. The occupation sequence spans the main urban phase of the settlement, from the late 6th to the early 4th century BCE.
 
-The insula was explored between 1952 and 1961 under the direction of G. A. Mansuelli. The context has since been the focus of renewed study by the Chair of Etruscology at the University of Bologna, based on the recovery and analysis of the archival excavation documentation and on the systematic study of the recovered artefacts.
+The insula was explored between 1952 and 1961 under the direction of P.E. Arias (1952-1953) and G. A. Mansuelli (1958-1961).
 
 ---
 

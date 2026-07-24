@@ -8,7 +8,7 @@
 
 Casa 1 occupies the head position of Insula 2 in Regio IV, the southernmost of the main residential quarters of ancient Kainua. Like the other houses of the insula, it follows the canonical Etruscan urban layout of the site: a rectangular plan oriented on the north–south axis of the street grid, with rooms arranged around a central atrium space. The building sequence spans the main occupation phase of the settlement, from the late 6th to the early 4th century BCE, when the site was abandoned.
 
-The house was excavated by the University of Bologna (1988–1998) and remains one of the most thoroughly documented domestic contexts at Marzabotto, providing detailed evidence for spatial organisation, construction techniques, and material assemblages across multiple sub-phases.
+The house was excavated by the University of Bologna (1988–1998) and remains the most thoroughly documented domestic contexts at Marzabotto, providing detailed evidence for spatial organisation, construction techniques, and material assemblages across multiple sub-phases.
 
 ---
 
